@@ -13,6 +13,7 @@ Thanks for being our friend and chatting with us online these past few years (I 
 Even though we've never called or seen each other, your tweets have so much character that I feel like we've become close already 👍 please keep being kind, witty and fun. have a great birthday!
 
 p.s. a greater part of the gift's cost was borne by Dante so all credit to him oleaseee
+
 \- Trin
 
 ---
