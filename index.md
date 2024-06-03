@@ -1,7 +1,8 @@
-Happy Birthday, Fjorseti!
+# Happy Birthday, Fjorseti!
+
 This is our accompanying birthday card to go along with the present we have gifted you.
 
-
+---
 
 From Trincakes:
 
@@ -15,8 +16,9 @@ Even though we've never called or seen each other, your tweets have so much char
 like we've become close already 👍 please keep being kind, witty and fun. have a great birthday!
 
 p.s. a greater part of the gift's cost was borne by Dante so all credit to him oleaseee
-- Trin
+\- Trin
 
+---
 
 From Dante:
 
@@ -25,4 +27,4 @@ It's been a pleasure interacting with you on Twitter all this time. And of cours
 enough for being there to talk when I need you. I hope you enjoy your new coffee machine and game!
 You deserve them!
 
-- Dante
+\- Dante
